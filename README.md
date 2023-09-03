@@ -40,8 +40,6 @@ Email - nisheet.karan@iiitg.ac.in.  <br />
 
 
 
-<div align="center">
-<h1>   Many thanks for this opportunity!  
- </h1>                                                
+                                             
 
 
